@@ -1,0 +1,3 @@
+- Hi, I’m SUPER-PETRO
+- My name is Petro
+- I’m interested in game Counter Strike 1.6
